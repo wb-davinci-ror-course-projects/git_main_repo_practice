@@ -1,0 +1,1 @@
+favorite place: Lake Tahoe
